@@ -1,4 +1,4 @@
-# 
+# Top deribit trading bot ferramentas para Mac OS | VIP deribit trading bot ferramentas para PC Windows. Com ordens stop-loss e motor de backtest — otimizado para máximo desempenho em cada plataforma.
 
 
 
